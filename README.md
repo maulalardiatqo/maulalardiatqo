@@ -1,0 +1,2 @@
+# maulalardiatqo
+STKIPNU
